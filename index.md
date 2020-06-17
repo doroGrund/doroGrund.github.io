@@ -12,3 +12,8 @@ Frank Thiel ist Kriminalhauptkommissar im Münsteraner Tatort. Mit seiner nordis
 * ermittelt gut und erfolgreich
 * trockener Humor
 
+> Thiel: „Tut mir leid.“
+> Boerne: „Fallen Sie nicht gleich in Ohnmacht vor lauter Demut.“
+> 
+>
+> Thiel zu Boerne: „Das ist ein Tatort und kein Spielplatz für unterforderte > Mittelstandsakademiker\!“
