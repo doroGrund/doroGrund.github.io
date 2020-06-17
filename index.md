@@ -16,4 +16,8 @@ Frank Thiel ist Kriminalhauptkommissar im Münsteraner Tatort. Mit seiner nordis
 > Boerne: „Fallen Sie nicht gleich in Ohnmacht vor lauter Demut.“
 > 
 >
-> Thiel zu Boerne: „Das ist ein Tatort und kein Spielplatz für unterforderte > Mittelstandsakademiker\!“
+> Thiel zu Boerne: „Das ist ein Tatort und kein Spielplatz für unterforderte Mittelstandsakademiker\!“
+
+© Raimond Spekking / [CC BY-SA 4.0 via Wikimedia Commons] (https://creativecommons.org/licenses/by-sa/4.0/legalcode)
+<img src="https://commons.wikimedia.org/wiki/File:WDR-Dreharbeiten zu Tatort Münster „Lakritz“-6979.jpg"/>
+„WDR-Dreharbeiten zu Tatort Münster „Lakritz“-6979“ 
